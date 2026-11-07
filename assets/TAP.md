@@ -1,7 +1,7 @@
-# Terms of Service & Privacy Policy (TAP)
+# Terms of Service & Privacy Policy
 
 **Dquests** (by MinhSangGD)  
-Last Updated: 07 November, 2026
+Last Updated: November 07, 2026
 
 ---
 
